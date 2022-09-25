@@ -14,7 +14,7 @@
 - 💬 Ask me about **Tools / Multitools / Collab / Team**
 
 - 📫 How to reach me **Discord: nex#6166**
-- ![image](https://user-images.githubusercontent.com/114344970/192156369-af800a72-a7d3-4c61-8469-2478872ca133.png)
+- https://user-images.githubusercontent.com/114344970/192156369-af800a72-a7d3-4c61-8469-2478872ca133.gif
 
 _____________________________________________________________________________________________________________________________________________________________________
 <h3 align="left">Connect with me:</h3>
